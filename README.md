@@ -1,3 +1,3 @@
 # pygameshitforistclassxd
 some istshit alasdmiaod
-THIS si something for ist idk why but sure
+This is the least fun i have ever had in ist class. 
